@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-BEAE890103MMCRVV01
+BEAE890103MMCRVV01
